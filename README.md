@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @terevyt
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...gfsds
 - 💞️ I’m looking to collaborate on ...123123
 - 📫 How to reach me ..ff
 - 😄 Pronouns: ...h
