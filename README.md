@@ -2,7 +2,7 @@ fnnf- 👋 Hi, I’m @terevyt
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...gfsds654465
 - 💞️ I’m looking to collaborate on ...123123
-- 📫 How to reach me ..ffsdf
+- 📫 How to reach me ..ffsdf4447
 - 😄 Pronouns: ...h
 - ⚡ Fun fact: dg222r
 <!---4565werasdf4458dfg6262
