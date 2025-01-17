@@ -1,4 +1,4 @@
-fnnf- 👋 Hi, I’m @terevyt
+dfvfnnf- 👋 Hi, I’m @terevyt
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...gfsds654465
 - 💞️ I’m looking to collaborate on ...123123
