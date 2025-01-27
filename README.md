@@ -1,7 +1,7 @@
 dfvfnnf- 👋 Hi, I’m @terevyt
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...gfsds654465
-- 💞️ I’m looking to collaborate on ...123123
+- 💞️ I’m looking to collaborate on ...123123jhmjh
 - 📫 How to reach me ..ffsdf4447
 - 😄 Pronouns: ...h
 - ⚡ Fun fact: dg222rfvddfwqe63636
