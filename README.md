@@ -1,5 +1,5 @@
 dfvfnnf- 👋 Hi, I’m @terevyt
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...hrt
 - 🌱 I’m currently learning ...gfsds654465
 - 💞️ I’m looking to collaborate on ...123123jhmjhjhhj
 - 📫 How to reach me ..ffsdf444796226fdds
