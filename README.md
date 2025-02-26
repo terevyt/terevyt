@@ -3,7 +3,7 @@ cxvcxvbvndfvfnnf- 👋 Hi, I’m @terevyt
 - 🌱 I’m currently learning ...gfsds654465
 - 💞️ I’m looking to collaborate on ...123123jhmjhjhhj
 - 📫 How to reach me ..ffsdf444796226fddsfdssgre256dgb
-- 😄 Pronouns: ...h
+- 😄 Pronouns: ...hgfgfb
 - ⚡ Fun fact: dg222rfvddfwqe63636dsfdfg23e3rty
 <!---4565werasdf4458dfg6262dsfgrerert
 terevyt/terevyt is a ✨ special ✨ repository because its `README.md` (this f63ile) appears on your GitHub p58rofigrede.vdsa4745dsgerg
