@@ -1,7 +1,7 @@
 hnggcxvcxvbvndfvfnnf- 👋 Hi, I’m @terevyt
 - 👀 I’m interested in ...hrt
 - 🌱 I’m currently learning ...gfsds654465
-- 💞️ I’m looking to collaborate on ...123123jhmjhjhhjtrgrthgtgbffg
+- 💞️ I’m looking to collaborate on ...123123jhmjhjhhjtrgrthgtgbffgfew
 - 📫 How to reach me ..ffsdf444796226fddsfdssgre256dgb
 - 😄 Pronouns: ...hgfgfb
 - ⚡ Fun fact: dg222rfvddfwqe63636dsfdfg23e3rty
