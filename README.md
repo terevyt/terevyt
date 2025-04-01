@@ -5,7 +5,7 @@ k,hnggcxvcxvbvndfvfnnf- 👋 Hi, I’m @terevyt
 - 📫 How to reach me ..ffsdf444796226fddsfdssgre256dgbgredw
 - 😄 Pronouns: ...hgfgfbbgffgbdgfdgrefggreherh
 <!---4565werasdf4458dfg6262dsfgrerertjmhhjrfrf
-terevyt/terevyt is a ✨ special ✨ repository because its `README.md` (this f63ile) appears on your GitHub p58rofigrede.vdsa4745dsgerggrrg
+terevyt/terevyt is a ✨ special ✨ repository because its `README.md` (this f63ile) appears on your GitHub p58rofigrede.vdsa4745dsgsdfdsferggrrg
 You can click the Preview link to take a look at your changevxxxxs.р123465
 --->55544dgffesnhhhfj
 bfggbf
