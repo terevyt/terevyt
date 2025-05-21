@@ -4,7 +4,7 @@ dewewsdk,hnggcxvcxvbvndfvfnnf- 👋 Hi, I’m @terevyt
 - 📫 How to reach me ..ffsdf444796226fddsfdssgre256dgbgredwwffghhgfgfhergsdfbvvcx
 - 😄 Pronouns: ...hgfgfbbgffgbdgfdgrefggreherhddfhdf
 <!---4565werasdf4458dfg6262dsfgrerertjmhhsvfyfsdsddshdffdfdgdgfdgfgdfddd
-terevyt/terevyt is a ✨ special ✨ repository because its `README.md` (this f63ile) appears on your GitHub p58rodfgdfaadfdfbdfxcvs
+terevyt/terevyt is a ✨ special ✨ repository because its `README.md` (this f63ile) appears on your GitHub p58rodfgdfaadfdfbdfxcvshngghn
 You can click the Preview link to take a look at your changevxxxxs.р123465bfdcvbcvbvcgerregrefd.lkj,nmnrgereregjjhfjghj
 --->55544dgffesnhhhf55dfggdfdd
 bfggbfvcxxcv
