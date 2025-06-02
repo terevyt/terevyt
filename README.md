@@ -1,6 +1,6 @@
 tbdewewsdk,hnggcxvcxvbvndfvfnnf- 👋 Hi, I’m @terevyt
-- 👀 I’m interested in ...hrtcv
-- 💞️ I’m looking to collaborate on ...123123jhmjhjhhjtrgrthgtgbffgfewcxcxcxvcxvcxxcfgthtt
+- 👀 I’m interested in ...hrtcvbnmbnmn
+- 💞️ I’m looking to collaborate on ...123123jhmjhjhhjtrgrthgtgbffgfewcxcxcxvcxvcxxcfgthttbmn
 - 📫 How to reach me ..ffsdf444796226fddsfdssgre256dgbgredwwffghhgfgfhergsdfbvvcgerergregwqdsabtyutbyubtyu
 - 😄 Pronouns: ...hgfgfbbgffgbdgfdgrefggreherhddfhdf5196
 <!---4565werasdf4458dfg6262dsfgrerertjmhhsvfyfsdsddshdffdfdgdgfdgfgdfdddrttr
